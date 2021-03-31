@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @7owery
 - 👀 I’m interested in ... designing characters for games!
-- 🌱 I’m currently learning ... idek. Japanese?
+- 🌱 I’m currently learning ... idek. Spanish, French, & Japanese?
 - 💞️ I’m looking to collaborate on ... my own project right now ...
 - 📫 How to reach me ... visit my Instagram, Twitter, or Tumblr with the same username to find more about me.
 
